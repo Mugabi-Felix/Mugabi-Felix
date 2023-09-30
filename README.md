@@ -1,0 +1,2 @@
+- 🌱 I’m currently learning how to build a website
+- 💞️ I’m looking for help with web design
